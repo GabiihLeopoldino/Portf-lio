@@ -5,7 +5,7 @@
 
 ## Estudante do Ensino Médio com um sonho no coração: ser veterinária 🐾❤️
 
-Desde pequena, sempre tive uma conexão especial com os animais. Essa paixão me levou a sonhar em me tornar veterinária, onde poderei cuidar, proteger e fazer a diferença na vida deles. Estou em um relacionamento com o Bento, sempre seguindo Jesus e tendo um relacionamento com ele no centro buscando a Santidade juntos ❤️. Minha fé católica ⛪ é uma parte essencial da minha jornada, guiando minhas escolhas e me inspirando a ser a melhor versão de mim mesma.
+Desde pequena, sempre tive uma conexão especial com os animais. Essa paixão me levou a sonhar em me tornar veterinária, onde poderei cuidar, proteger e fazer a diferença na vida deles. Estou em um relacionamento com o Bento, sempre seguindo Jesus e tendo um relacionamento com Ele no centro buscando a Santidade juntos ❤️. Minha fé católica ⛪ é uma parte essencial da minha jornada, guiando minhas escolhas e me inspirando a ser a melhor versão de mim mesma.
 
 ### 🌟 Minhas Aptidões
 
