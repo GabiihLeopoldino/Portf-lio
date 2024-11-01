@@ -24,6 +24,4 @@ Estou sempre aberta a novas amizades e colaborações! Sinta-se à vontade para 
 - **Instagram**: 📸 @gabii.leop (https://www.instagram.com/seuusuário)
 - **Email**: ✉️ g.leopoldino@escola.pr.gov.br (mailto:seuemail@example.com)
 
----
 
-Espero que essa versão esteja perfeita para você! Se precisar de mais alguma coisa, é só avisar!
